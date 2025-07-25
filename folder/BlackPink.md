@@ -1,5 +1,3 @@
-BlackPink: Lovesick Girls
-
 Lovesick girls
 Lovesick girls
 
